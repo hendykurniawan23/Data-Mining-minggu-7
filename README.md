@@ -1,0 +1,1 @@
+# Data-Mining-minggu-7
